@@ -1,1 +1,0 @@
-# Everyone Do Activity
